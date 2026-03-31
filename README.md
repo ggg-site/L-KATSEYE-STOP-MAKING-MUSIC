@@ -1,2 +1,2 @@
-# L-KATSEYE-STOP-MAKING-MUSIC
-hehe
+#READ DIT
+website : https://ggg-site.github.io/L-KATSEYE-STOP-MAKING-MUSIC/
